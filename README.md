@@ -1,1 +1,1 @@
-★ [plecakserce](https://vlri4.github.io) ★
+★ [plecakserce](https://vlri4.xyz) ★
