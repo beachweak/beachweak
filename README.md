@@ -1,1 +1,1 @@
-★ [plecakserce](https://vlri4.xyz) ★
+★ [plecakserce](https://plecak.lol) ★
