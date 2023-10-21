@@ -1,5 +1,5 @@
-★ AVERY (@snailvinyl)
+★ JACK (@snailvinyl)
 
 ★ [PORTFOLIO (plecak.lol)](https://plecak.lol)
 
-★ ASD / ADHD
+★ DYSPRAXIA / ADHD
